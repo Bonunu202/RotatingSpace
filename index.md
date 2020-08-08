@@ -12,5 +12,5 @@ Here is the link to download the game from the iOS App Store: https://apps.apple
 
 ### Support or Contact
 
-Facebook: fb.me/rotatingspace
-Instagram: instagram.com/rotating.space
+ - Facebook: fb.me/rotatingspace
+ - Instagram: instagram.com/rotating.space
